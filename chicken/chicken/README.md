@@ -1,0 +1,6 @@
+# chicken
+Preheat the oven to 350° F. Rinse the chicken thighs and place them snugly in an small baking dish. I used an 8- by 8-inch dish. (Note: Cara Nicoletti says you don't need to rinse chicken since all of the bacteria will cook off during baking anyways, but follow your heart.)
+Pour the onion mix into a small bowl, then use a spoon to combine it with the apricot jam. (As my mom says, "Three heaping spoonfuls should do it, but the more jam the better so don't worry about it.") While continuing to stir, pour the teriyaki sauce in about 1 tablespoon at a time until you have "sort of a marinade-y consistency." I'd guess I end up using about 4 tablespoons total, but give or take a tablespoon and you're good to go.
+Use a spoon to dollop the marinade over the chicken, making sure to cover it completely and get lots of sauce over the skin—the sugar in the jam will caramelize and the onion bits will get crunchy, which is just the thing you want to eat with chicken skin.
+Bake the chicken for 1 hour, or until the sauce has caramelized lightly and the chicken is cooked though (I'll sometimes take it out at 45 minutes and cut into one of the thighs to double check).
+Serve over something that will soak up all the saucy goodness like brown rice with some roasted broccoli on the side. Enjoy!
